@@ -1,1 +1,0 @@
-# Nauka z youtube
